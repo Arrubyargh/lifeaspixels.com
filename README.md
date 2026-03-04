@@ -1,1 +1,1 @@
-# www.idearentals.com
+# lifeaspixels.com
